@@ -1,0 +1,2 @@
+# SIGED-certificado-primaria-autenticacion-BAGA660530HMNRMR09
+BAGA660530HMNRMR09
